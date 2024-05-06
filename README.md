@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Data analysis
 - 📫 How to reach me muskankingrani4@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like to paint
+- ⚡ Fun fact: I like to cook
 
 <!---
 mieuki/mieuki is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
